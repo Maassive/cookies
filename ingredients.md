@@ -8,5 +8,5 @@
 - 3/4 cup white sugar
 - 2 eggs
 - 1/2 teaspoon vanilla
-- 6 oz. Butterscotch chips
+- 6 oz. Butterscotch chips or 6 oz. semi-sweet chocolate chunks
 
